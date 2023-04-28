@@ -10,6 +10,5 @@
 #### :arrow_double_down: [Windows 版本.exe](https://appshare.onelink.me/7uiT/cd934bda)
 #### :arrow_double_down: [macOS 版本.dmg](https://appshare.onelink.me/7uiT/1ed3d477)
 #### :arrow_double_down: [官方网站链接](https://appshare.onelink.me/7uiT/a60e7e13)
----
 ### 免费福利
 **:gift: 填写邀请码送会员:55255178**
