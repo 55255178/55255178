@@ -11,4 +11,4 @@
 #### :arrow_double_down: [macOS 版本.dmg](https://appshare.onelink.me/7uiT/1ed3d477)
 #### :arrow_double_down: [官方网站链接](https://appshare.onelink.me/7uiT/a60e7e13)
 
-熊说AES256：http://hi.pcmoe.net/aes.html
+解密神秘代码 熊说AES256：http://hi.pcmoe.net/aes.html
