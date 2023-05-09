@@ -19,4 +19,3 @@ OfpqacsKYlr9koBG6bAeaoDVgP5Ie/BZcw/dn3wVUvuOaUv39dsULgut5224b7LNcRVTNFyDaXvxDtxl
 
 --------------------------------------------------------------------------------
 
-**奈飞迪士尼合租账号，电脑手机随时点播，海量正版中字。https://ihezu.city/prkyvM**
